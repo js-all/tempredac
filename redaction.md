@@ -2,7 +2,7 @@ En 1940 l’Allemagne commence la destruction des Juifs d’Europe
 La famille Perper à été une des nombreuses familles victimes de
 cette destruction des Juifs en Europe 
 
-  Au cours de la seconde guerre mondiale (et depuis la prise au pouvoir
+   Au cours de la seconde guerre mondiale (et depuis la prise au pouvoir
 du parti nazi), les Juifs perdent peu a peu leurs droits dans les
 territoires occupés par l'Allemagne nazi. En 1935, les lois de
 Nuremberg défendent  les Juifs de se mélanger avec le sang allemand.
