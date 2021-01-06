@@ -1,11 +1,45 @@
-Je me rappelle encore de ma première fois, ma première survie Minecraft. Je commence dans le menu, suivant étapes par étapes la création du monde, cliquant jusqu'à atteindre le fameux "créer un nouveau monde".  J'arrive en cette place cubique et pixelisée confus par la prochaine étape. Les versions d'antan n'étant que peu claire à ce propos. Malgré cette nouveauté, je sais de par la vidéo que j'ai vu, la première étape: celle de casser un arbre. Je m'approche donc du concerné le plus proche et je commence a maintenir le clic sur l'un des mètre cube de bois choisis arbitrairement. Quelques secondes plus tard, le cube disparait en une traînée de particules carrées. Puid se transforme en une version miniature et flottante de lui même et rentre dans la première des dix case en bas de mon écran. Je répète cela quelques fois jusqu'à que la partie basse du grand arbre sombre aux feuilles vert foncées ne soit plus. Une fois satisfait de ma collection, je décide, suivant les lets plays qui m'ont introduit aux jeu, de fabriquée l'essentiel "établie". Après vérification des touches, j'appuie sur le "E" ouvrant alors mon inventaire. Dans la grande fenêtre blanche je repère les quatre carré qui m'intéresses. Puis je place une bûche dans l'un d'eux, obtenant donc quatre planches, puis en en mettant une par carreaux, j'obtiens le fameux établie. Une fois placé, je l'ouvre à son tour et place un à un les éléments suivant la page du wiki minecraft ouvert à côté. Jusqu'à avoir fais une pioche et une hache vident au passage mon stock de bois.
+En 1940 l’Allemagne commence la destruction des Juifs d’Europe
+La famille Perper à été une des nombreuses familles victimes de
+cette destruction des Juifs en Europe 
 
+Au cours de la seconde guerre mondiale (et depuis la prise au pouvoir
+du parti nazi), les Juifs perdent peu a peu leurs droits dans les
+territoires occupés par l'Allemagne nazi. En 1935, les lois de
+Nuremberg défendent  les Juifs de se mélanger avec le sang allemand.
+En 1938 les Juifs sont retirer de l’économie allemande en les
+interdisant d'occuper des positions importantes et en créant le
+concept de magasin "Juif" qu'il était décourager d'entrée Le 3
+octobre 1940 le gouvernement de Vichy définis le status des Juifs
+qui applique des réglementations similaire aux dernières lois
+mentionnées, c'est cette lois qui licencie le Dr.Perper). Le
+lendemain une autre lois de Vichy donne l'autorisation au préfets
+d'interner les Juifs en camps (la famille Perper est envoyés au
+camp de Drancy peu de jours après cette lois).
 
+Pendant que le compte des droits Juifs se réduits, l'Allemagne nazi
+s'adonne aussi au recensement de toute la populationa Juifs. Celui-ci
+commence en septembre 1940, puis il est renforcé, d'abord, le 7
+octobre de la même année par l'obligation de l'inscription de la
+mentions Juifs sur les papier d'identités. En suite, par, le 29 mai
+1942 avec le port obligatoire de l’étoile jaune pour les Juifs de
+de plus de 6 ans.
 
-Après cela n'étant plus sur de la prochaine étape je décide d'explorer le monde et découvrir les alentours. Je remarque vite que le terrain enneigé et montagneux aux arbres grands se coupe vite d'une prairie bien plus lumineuse. Je passe à coté d' animaux et découvre la capacité de courir. Mais le temps en ce monde passe bien vite et je vois la nuit tomber. Puis, je décide instinctivement de rentrer là où j'ai commencé, connaissant la tendance de ce jeu a devenir bien effrayant pendant ces heures sombres. Je mine rapidement quelques buches de plus et tente de me réfugier dans une étroite, mais sauf, demeure où passer la nuit. Problème je vois trop gros et me rend vite compte du nombre dont j'ai besoins, et de celui qu'il me manque. Très vite j'aperçois les formes grise, verte et noire qui constitue les menacent ennemis de la nuit. Puis quelques silhouettes ressemblant a des squelettes m'attaquent d'une distance qui me surprend. Ma vie se réduit et ne remonte pas en raisons de mon manque de nourriture, bien que je ne le savais pas a l'époque. Je cours un peu pour m'écarter de la mort mais me rapproche d'elle encore plus, le remarquant que quelques temps plus tard, à l'entente du fameux "tsssssss...". Je me retourne  et observe en quelques instants la forme verte sans bras flashant en blanc que je connais avoir déjà tué beaucoup au paravent les vidéastes que je regardais. "Boum", un bruit d'explosion et un léger sursaut plus tard, je me retrouve nez à nez à l'écran rouge. Le texte "Vous êtes mort(e) !" et les deux boutons: "ressusciter" et "menu principal". Avec peu d'hésitation je clique le premier et réapparais dans le paysage sombre et enneigé.
+Après recensement, les Juifs sont habituellement arrêté par les
+autorités locales sans distinction pour l'age. Dans l'exemple de la
+famille Perper, ils (incluant les enfants) sont arrêter par la
+gendarmerie française (sous le gouvernement Vichy) pendant la
+rafle des Juifs apatrides. Puis, les Juifs sont envoyés par train,
+passant par plusieurs arrêts (Morlaix, Rennes, Drancy pour les
+Perper), pour finalement être mis en camps de concentration ou
+camps de mise a morts  (Sobibor, Triblinka et Auschwitz de Birkenau),
+Pour les Perpers, sur 163 personnes seulement 15 hommes ont survécus
+et 13 autres personnes sont échappés.
 
-Leçons apprise je décide de m'enterrer dans le sol jusqu'à la fin de la nuit, juste après avoir courus pour récupérer le peu que j'avais sur moi. J'attends alors et décide de bouger un peu de ma chaise et faire autre chose ne sachant pas quand la nuit se finissait. Je reviens quelques minutes plus tard et casse mon plafond pour regarder le temps. Le ciel n'est pas clair, mais jeune et impatient comme j'étais, je remonte en me creusent un escalier dans la terre. Les monstres restant prennent feux et les kamikazes manchots vert sont plus visibles et plus facile à éviter. Je reprend donc mes occupations d'avant la nuit et explore plus. Je cours jusqu'à trouver une montagne rocheuse avec un bout d'herbe dessus et quelques partie de pierres flottantes ignorant les lois de la gravité. Sur cette montagne je trouve quelques "tache" noire dans la pierre, intriguer je prend ma pioche et tente de les miner. Cela prend du temps mais une fois casser j'obtiens un bout de matière noire appeler par le jeu charbon. Jetant des coup d'oeil fréquent au wiki et particulièrement a la "liste des ids", que je ne comprends pas à l'époque, mais je remarque un bloc gris avec une partie basse en feu. Puis testant une hypothèse j'écris dans la barre de recherche du site "cuire" et tombe sur le "fourneau". Je clique donc sur le lien et me retrouve devant la recette de ce bloc qui semble être ce que je veut. Je casse donc la pierre à coté du charbon me rappelant comment obtenir les matériaux d'une vidéo. Une fois cassé huit comme j'avais bien compter sur l'image du site, je place donc un établie et commence a faire mon objectif.
-
-Four en main je le place, content de moi mais n'ayant rien à y mettre un peu déçu. Je l'ouvre et essaye de comprendre son fonctionnement, sans succès. Je recherche donc, avec mon meilleur orthographe de l'époque: "coment utiliser four minecratf". Après quelques lien et résultats plus ou moins convainquant, je trouve une des chose que je peux faire et décide aussitôt de cuire une pierre. Je place mon précieux combustible noire en dessous tandis que je mes une roche fraichement miner au dessus, la, un feux apparait et la flèche commence à se remplir. Une fois fait un bloc gris apparait à droite et je le prend. Le résultat n'est pas incroyable mais je suis content de comprendre le fonctionnement de ce nouveau pour moi bloc, le fourneau. Un peu perdu maintenant, je cherchais pour d'autre cuissons que je pourrais faire mais sans succès. Je reviens donc à l'exploration du monde aux limites que je ne connaissais pas. je cours toujours plus, repasse devant des choses maintenant familières jusqu'à la découverte d'un trou dans la terre. Une sorte de grotte, je décide donc de m'y aventurer à la recherche de nouvelles choses. Chose dit, chose fait je trouve un charbon beige, dur a différentié dans la pénombre je tente donc de le miner mais rien n'apparait. Confus je réessaye plusieurs fois sans différence. J'en reviens donc a mon meilleur amis, l'internet, je cherche cette fois si longtemps mais manque de vocabulaire, je ne trouve rien et abandonne donc. Je decide alors de regarder plus de vidéo sur le jeu et je découvre, la pioche en pierre.
-
-Nouvelle connaissances en poche je fais cet outil de suite et retente le minage du "charbon beige" et l'obtient. Découvrant donc son nom: "minerai de fer", le bloc m'étant familier, je vérifie la liste des objets à cuire et comme je le pensait je le trouve ici. Je recherche mon four, courant un peu plus ne savant plus sa position. Mais quelques minutes suffisent pour le retrouver. Je l'ouvre donc à nouveau et place les bloc gris et beige dans la case vide, et la flèche commença à nouveau a bouger. Mais tristement, comme la nuit dans le jeu qui tombait, la nuit dans le monde réelle aussi et je devais arrêter pour le jour. Le lendemain je découvre le "mode créatif" qui, pour un enfant de mon age à l'époque était bien plus intéressant. Oubliant au passage ce monde maintenant parmi tant d'autres. Cette première fois n'a peut être pas étés jusqu'aux bout. Elle n'a peut être pas durée longtemps. Mais cela reste mon introduction à ce jeu, que je découvre et redécouvre aujourd'hui encore sous d'autre formes sans jamais qu'il m'ennuies.
+Pendant la seconde guerre mondiale les Allemands ont organisés la
+destruction de la population juive d'Europe enplusieures etapes.
+Ils commencent par chercher à les eloigner, (Ghettos, Camps de
+concentrations), puis, les recenser. En 1941, ils decident de prendre
+une approche plus dirrecte, en mettant en place des camps de mise
+à morts (gazage homicide au monoxyde de carbon ou zyklon B). Et les
+tueries à l'Est (Einsatzgruppen). Leurs methodes devient donc, de
+recenser, deporter, puis assassiner les Juifs.
