@@ -2,7 +2,7 @@ En 1940 l’Allemagne commence la destruction des Juifs d’Europe
 La famille Perper à été une des nombreuses familles victimes de
 cette destruction des Juifs en Europe 
 
-   Au cours de la seconde guerre mondiale (et depuis la prise au pouvoir
+Au cours de la seconde guerre mondiale (et depuis la prise au pouvoir
 du parti nazi), les Juifs perdent peu a peu leurs droits dans les
 territoires occupés par l'Allemagne nazi. En 1935, les lois de
 Nuremberg défendent  les Juifs de se mélanger avec le sang allemand.
@@ -16,7 +16,7 @@ lendemain une autre lois de Vichy donne l'autorisation au préfets
 d'interner les Juifs en camps (la famille Perper est envoyés au
 camp de Drancy peu de jours après cette lois).
 
-  Pendant que le compte des droits Juifs se réduits, l'Allemagne nazi
+Pendant que le compte des droits Juifs se réduits, l'Allemagne nazi
 s'adonne aussi au recensement de toute la populationa Juifs. Celui-ci
 commence en septembre 1940, puis il est renforcé, d'abord, le 7
 octobre de la même année par l'obligation de l'inscription de la
@@ -24,7 +24,7 @@ mentions Juifs sur les papier d'identités. En suite, par, le 29 mai
 1942 avec le port obligatoire de l’étoile jaune pour les Juifs de
 de plus de 6 ans.
 
-  Après recensement, les Juifs sont habituellement arrêté par les
+Après recensement, les Juifs sont habituellement arrêté par les
 autorités locales sans distinction pour l'age. Dans l'exemple de la
 famille Perper, ils (incluant les enfants) sont arrêter par la
 gendarmerie française (sous le gouvernement Vichy) pendant la
